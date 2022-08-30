@@ -1,0 +1,5 @@
+# MADpractical2_20012011167![WhatsApp Image 2022-08-30 at 8 19 30 AM](https://user-images.githubusercontent.com/98373322/187337765-078f82bd-0a03-49e7-a905-1ba9551c9a40.jpeg)
+![WhatsApp Image 2022-08-30 at 8 19 32 AM](https://user-images.githubusercontent.com/98373322/187337780-2ff19c6e-1ada-4f4f-8f2a-e5e22f549639.jpeg)
+![WhatsApp Image 2022-08-30 at 8 19 34 AM](https://user-images.githubusercontent.com/98373322/187337791-4470bf19-2ca2-479c-8420-609fad292e10.jpeg)
+![WhatsApp Image 2022-08-30 at 8 19 35 AM](https://user-images.githubusercontent.com/98373322/187337803-55b9d270-4a68-4134-b0e4-8d8310e194bc.jpeg)
+![WhatsApp Image 2022-08-30 at 8 19 40 AM](https://user-images.githubusercontent.com/98373322/187337815-1871caa0-30af-4efe-9b88-4a3d82d7cc2b.jpeg)
